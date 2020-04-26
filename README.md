@@ -5,5 +5,5 @@ be non other than "SUPER STAR RAJINIKANTH" and "SALMAN KHAN"
 they are biggest stars of India.Not only with their acting 
 but with their dialogue delivery they won thousands of
 people's hearts .
- ![](image/file:///storage/emulated/0/Download/rajinikanth_1547097026110.jpg)
+ ![](image/rajinikanth_1547097026110.jpg)
 
